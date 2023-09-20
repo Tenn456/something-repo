@@ -1,5 +1,8 @@
 # something-repo
 
-I don't know what I'm doing.
+You know what you are doing. Don't worry you got this.
 
-Get Out.
+One step at a time.
+
+We are learning a lot of good stuff in this class.
+yayy!!
