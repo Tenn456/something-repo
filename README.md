@@ -2,7 +2,7 @@
 
 You know what you are doing. Don't worry you got this.
 
-One step at a time.
+One step at a time, like the ladders.
 
-We are learning a lot of good stuff in this class.
+Github Tweaking! lol
 yayy!!!
